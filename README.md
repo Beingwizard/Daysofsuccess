@@ -1,6 +1,7 @@
 # 30-Day Building Challenge
 
 Welcome to the **30-Day Building Challenge**! This is a community-driven initiative designed to help you break free from procrastination, overcome the fear of starting, and start building projects you’ve been putting off for far too long. I'm not a teaching anything here, just helping you out get things done. 
+Start here - https://forms.office.com/r/f5rivFYLC1
 
 ---
 
@@ -22,8 +23,8 @@ Welcome to the **30-Day Building Challenge**! This is a community-driven initiat
 
    - For now, discussions and support will happen on WhatsApp for easy communication. This may change later as the initiative grows. will share the link to a few ppl who get accepted. 
 
-   - Participation isn’t guaranteed. Not everyone who fills out the form will get in—this is for those who are ready to commit and work hard - 
-
+**   - Participation isn’t guaranteed. Not everyone who fills out the form will get in—this is for those who are ready to commit and work hard - https://forms.office.com/r/f5rivFYLC1
+**
 
 ## **How This Will Help You**
    - Trust yourself not me, you're helping yourself. 
